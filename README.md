@@ -1,0 +1,1 @@
+# masaüstü ticaret uygulaması
